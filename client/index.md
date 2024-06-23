@@ -1,0 +1,20 @@
+# All Link Media Finance
+
+
+https://news.google.com/articles/CBMiUmh0dHBzOi8vZmluYW5zaWFsLmJpei5pZC9oaW5kYXJpLWplcmF0YW4tcGluamFtYW4tcmVudGVuaXItaWt1dGktdGlwcy1iZXJpa3V0LWluaS_SAQA?hl=id&gl=ID&ceid=ID%3Aid
+
+https://news.google.com/articles/CBMiS2h0dHBzOi8vZmluYW5zaWFsLmJpei5pZC9jYXJhLW11ZGFoLW1lbmdoZW1hdC11YW5nLWRlbmdhbi1tZW5hYnVuZy1kaS1iYW5rL9IBAA?hl=id&gl=ID&ceid=ID%3Aid
+
+https://news.google.com/articles/CBMiWGh0dHBzOi8vZmluYW5zaWFsLmJpei5pZC9yYWhhc2lhLW1lbWlsaWgtYXN1cmFuc2kta2VzZWhhdGFuLXRlcmJhaWstdW50dWsta2VsdWFyZ2EtYW5kYS_SAQA?hl=id&gl=ID&ceid=ID%3Aid
+
+https://news.google.com/articles/CBMiT2h0dHBzOi8vZmluYW5zaWFsLmJpei5pZC9taXRvcy1kYW4tZmFrdGEtc2VwdXRhci1hc3VyYW5zaS15YW5nLXdhamliLWRpa2V0YWh1aS_SAQA?hl=id&gl=ID&ceid=ID%3Aid
+
+https://news.google.com/articles/CBMiT2h0dHBzOi8vZmluYW5zaWFsLmJpei5pZC9taXRvcy1kYW4tZmFrdGEtc2VwdXRhci1hc3VyYW5zaS15YW5nLXdhamliLWRpa2V0YWh1aS_SAQA?hl=id&gl=ID&ceid=ID%3Aid
+
+https://news.google.com/articles/CBMiVmh0dHBzOi8vZmluYW5zaWFsLmJpei5pZC9yYWhhc2lhLXRlcnNlbWJ1bnlpLWludmVzdGFzaS11bnR1ay1wZW11bGEtbWVuamFkaS1rYXlhLXJheWEv0gEA?hl=id&gl=ID&ceid=ID%3Aid
+
+https://news.google.com/articles/CBMiaWh0dHBzOi8vZmluYW5zaWFsLmJpei5pZC81LWtlc2FsYWhhbi1mYXRhbC15YW5nLXNlcmluZy1kaWxha3VrYW4taW52ZXN0b3ItcGVtdWxhLWRhbi1jYXJhLW1lbmdoaW5kYXJpbnlhL9IBAA?hl=id&gl=ID&ceid=ID%3Aid
+
+https://news.google.com/articles/CBMiUmh0dHBzOi8vZmluYW5zaWFsLmJpei5pZC81LWFsYXNhbi1tZW5nYXBhLWFuZGEtbWVtYnV0dWhrYW4tYXN1cmFuc2ktaml3YS1zYWF0LWluaS_SAQA?hl=id&gl=ID&ceid=ID%3Aid
+
+r
